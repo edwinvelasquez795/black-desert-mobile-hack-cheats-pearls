@@ -1,3 +1,6 @@
+
+It does not work, it is false since it gives the code but does not advance more .. the link is only to generate money
+
 # Black Desert Mobile Hack android Cheats ios global mod for unlimited pearls
 
 Are you sick and tired of buying silver and Pearls? Do you have not enough money? You are in the right place, on our Black Desert Mobile Hack  you will learn how get silver and Pearls without spending any money. Yes, completly for free.
